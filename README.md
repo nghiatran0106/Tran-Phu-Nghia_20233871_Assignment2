@@ -1,2 +1,1 @@
-# Bui-Thai-Son_20233874_Assignment2
-# my game homework
+# Tran-Phu-Nghia_20233871_Assignment2
